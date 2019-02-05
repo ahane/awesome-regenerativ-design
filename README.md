@@ -19,6 +19,7 @@ http://ascentofhumanity.com/text/ [free/payw]
 
 ## Blogs and Magazines
 https://medium.com/age-of-awareness/
+http://www.ethansoloviev.com/
 
 ## Institutes, Schools and Univerisities
 https://gaiaeducation.org
