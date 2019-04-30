@@ -37,6 +37,9 @@ https://medium.com/age-of-awareness/
 
 http://www.ethansoloviev.com/
 
+## Platforms and Networks
+https://regencommunities.net/
+
 ## Institutes, Schools and Univerisities
 
 https://gaiaeducation.org
@@ -46,3 +49,5 @@ https://www.schumachercollege.org.uk/
 http://www.schumacherinstitute.org.uk/
 
 capitalinsitute.org
+
+Regenesist Group
