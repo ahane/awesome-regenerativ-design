@@ -11,7 +11,9 @@ https://gaiauniversity.org/rld/
 https://charleseisenstein.org/programs/#courses
 Unlearning: For Change Agents
 
-
+## Formal Education
+Master of Science in Regnerative Studies (https://env.cpp.edu/rs/degree/master-science-regenerative-studies)
+Schumacher Institute
 
 ## Courses with Instruction (paid)
 https://www.context.org/about/plans/journey-deeper-into-the-planetary-era/
