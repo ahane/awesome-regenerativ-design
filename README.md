@@ -19,7 +19,8 @@ https://www.context.org/about/plans/journey-deeper-into-the-planetary-era/
 https://gaiaeducation.org/elearning-programmes/designing-for-sustainability-intro/
 
 ## Lectures and Videos
-
+Transforming the way humans inhabit the Eart Regenesis
+https://vimeo.com/user3488680
 
 
 ## Books
@@ -50,4 +51,4 @@ http://www.schumacherinstitute.org.uk/
 
 capitalinsitute.org
 
-Regenesist Group
+Regenesis Group
