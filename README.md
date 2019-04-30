@@ -6,6 +6,13 @@ awesome-regenerativ-design
 
 https://gaiauniversity.org/rld/
 
+## Courses, selfpaced (pay-what-you-can)
+*Charles Eisenstein's Courses*
+https://charleseisenstein.org/programs/#courses
+Unlearning: For Change Agents
+
+
+
 ## Courses with Instruction (paid)
 https://www.context.org/about/plans/journey-deeper-into-the-planetary-era/
 
@@ -20,6 +27,11 @@ http://www.regenterprise.com/regenerative-enterprise/ [payw]
 
 http://ascentofhumanity.com/text/ [free/payw]
 
+Regenerative Design for Sustainable Development
+(https://books.google.de/books?id=qB3v3gYofSUC&printsec=frontcover&redir_esc=y#v=onepage&q&f=false) John Tillman Lyle
+
+Regenerative Development
+
 ## Blogs and Magazines
 https://medium.com/age-of-awareness/
 
@@ -32,3 +44,5 @@ https://gaiaeducation.org
 https://www.schumachercollege.org.uk/
 
 http://www.schumacherinstitute.org.uk/
+
+capitalinsitute.org
