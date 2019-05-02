@@ -3,7 +3,7 @@ awesome-regenerativ-design
 
 ## Courses, selfpaced (free)
 *Regenerative Livelihoods by Design*
-
+https://www.clearabundance.org/available-programs-2/
 https://gaiauniversity.org/rld/
 
 ## Courses, selfpaced (pay-what-you-can)
@@ -21,6 +21,8 @@ https://www.context.org/about/plans/journey-deeper-into-the-planetary-era/
 https://gaiaeducation.org/elearning-programmes/designing-for-sustainability-intro/
 
 https://nrhythm.co/online-course-foundations-of-regenerative-organizations-may-2019/
+
+https://www.clearabundance.org/available-programs-2/
 
 ## Lectures, Videos and Webinars
 Transforming the way humans inhabit the Eart Regenesis
@@ -105,6 +107,8 @@ capitalinsitute.org
 Regenesis Group
 
 https://www.regenerativeorganizations.com/
+
+https://www.clearabundance.org
 
 ## Conferences
 https://theregenerativebusinesssummit.com/
