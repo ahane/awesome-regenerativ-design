@@ -40,6 +40,8 @@ http://regenerativeagriculturepodcast.com/
 
 https://carolsanfordinstitute.com/category/responsibleentrepreneurpodcast/
 
+https://bloomnetwork.org/podcast/
+
 ## Books
 http://www.regenterprise.com/regenerative-enterprise/ [payw]
 
