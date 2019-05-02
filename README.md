@@ -44,6 +44,16 @@ Regenerative Development
 Regenerative Enterprise
 http://www.regenterprise.com/regenerative-enterprise/
 
+The Regenerative Leadership Handbook
+https://smile.amazon.com/dp/B072RQQPB9/ref=smi_www_rco2_go_smi_3905707922?_encoding=UTF8&%2AVersion%2A=1&%2Aentries%2A=0&ie=UTF8
+
+Leading For Regeneration
+https://www.routledge.com/Leading-For-Regeneration-Going-Beyond-Sustainability-in-Business-Education/Hardman/p/book/9780415692458
+
+## Papers and Publications
+
+http://www.greattransition.org/documents/Great_Transition.pdf
+
 ## Blogs and Magazines
 https://medium.com/age-of-awareness/
 
@@ -68,6 +78,8 @@ http://financialpermaculture.com
 capitalinsitute.org
 
 Regenesis Group
+
+https://www.regenerativeorganizations.com/
 
 ## Conferences
 https://theregenerativebusinesssummit.com/
