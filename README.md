@@ -24,6 +24,9 @@ https://gaiaeducation.org/elearning-programmes/designing-for-sustainability-intr
 Transforming the way humans inhabit the Eart Regenesis
 https://vimeo.com/user3488680
 
+## Podcasts and Shows
+Masters of Regeneration Radio with Tomas Rayes
+https://www.youtube.com/channel/UCQytUeptexbdwvh6GtCYtNg
 
 ## Books
 http://www.regenterprise.com/regenerative-enterprise/ [payw]
