@@ -20,6 +20,8 @@ https://www.context.org/about/plans/journey-deeper-into-the-planetary-era/
 
 https://gaiaeducation.org/elearning-programmes/designing-for-sustainability-intro/
 
+https://nrhythm.co/online-course-foundations-of-regenerative-organizations-may-2019/
+
 ## Lectures, Videos and Webinars
 Transforming the way humans inhabit the Eart Regenesis
 https://vimeo.com/user3488680
