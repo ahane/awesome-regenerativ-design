@@ -31,6 +31,9 @@ https://www.youtube.com/watch?v=zLXX6VqWYTg
 Masters of Regeneration Radio with Tomas Rayes
 https://www.youtube.com/channel/UCQytUeptexbdwvh6GtCYtNg
 
+Business Second Opinion by Carol Sanford
+https://audioboom.com/channel/business-second-opinion
+
 ## Books
 http://www.regenterprise.com/regenerative-enterprise/ [payw]
 
