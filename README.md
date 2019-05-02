@@ -100,6 +100,8 @@ Regenesis Group
 
 https://www.regenerativeorganizations.com/
 
+https://www.savory.global/
+
 ## Conferences
 https://theregenerativebusinesssummit.com/
 https://bloompollination.com/
