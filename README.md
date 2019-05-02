@@ -119,6 +119,8 @@ https://www.regenerativeorganizations.com/
 
 https://www.clearabundance.org
 
+https://carolsanfordinstitute.com/
+
 ## Conferences
 https://theregenerativebusinesssummit.com/
 https://bloompollination.com/
