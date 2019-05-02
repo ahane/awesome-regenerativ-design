@@ -84,6 +84,9 @@ Biomimicry Resource Handbook
 
 http://www.greattransition.org/documents/Great_Transition.pdf
 
+
+Regenerative Practitioner Field Guide
+https://ibe.colostate.edu/wp-content/uploads/sites/5/2018/07/Regenerative-Practitioner-Field-Guide_2018_pages.pdf
 ## Blogs and Magazines
 https://medium.com/age-of-awareness/
 
