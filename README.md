@@ -67,7 +67,10 @@ http://www.ethansoloviev.com/
 
 ## Platforms and Networks
 https://regencommunities.net/
+
 https://apiosinstitute.org/
+
+https://bloomnetwork.org/
 
 ## Institutes, Schools and Univerisities
 
