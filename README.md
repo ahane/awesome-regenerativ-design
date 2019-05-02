@@ -34,6 +34,8 @@ https://www.youtube.com/channel/UCQytUeptexbdwvh6GtCYtNg
 Business Second Opinion by Carol Sanford
 https://audioboom.com/channel/business-second-opinion
 
+http://regenerativeagriculturepodcast.com/
+
 ## Books
 http://www.regenterprise.com/regenerative-enterprise/ [payw]
 
