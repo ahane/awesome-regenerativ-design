@@ -124,3 +124,6 @@ https://carolsanfordinstitute.com/
 ## Conferences
 https://theregenerativebusinesssummit.com/
 https://bloompollination.com/
+
+## Other Summaries
+https://regenesisgroup.com/resources/
