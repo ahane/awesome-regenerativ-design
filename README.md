@@ -20,12 +20,14 @@ https://www.context.org/about/plans/journey-deeper-into-the-planetary-era/
 
 https://gaiaeducation.org/elearning-programmes/designing-for-sustainability-intro/
 
-## Lectures and Videos
+## Lectures, Videos and Webinars
 Transforming the way humans inhabit the Eart Regenesis
 https://vimeo.com/user3488680
 
 Carol Sanford on the Principles of the Regenerative Design Paradigm
 https://www.youtube.com/watch?v=zLXX6VqWYTg
+
+https://nrhythm.co/webinars/
 
 ## Podcasts and Shows
 Masters of Regeneration Radio with Tomas Rayes
