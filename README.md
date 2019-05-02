@@ -33,6 +33,9 @@ https://www.youtube.com/watch?v=zLXX6VqWYTg
 
 https://nrhythm.co/webinars/
 
+Regenerative design, development and the LENSES framework
+https://www.youtube.com/watch?v=htb-kR98DbU
+
 ## Podcasts and Shows
 Masters of Regeneration Radio with Tomas Rayes
 https://www.youtube.com/channel/UCQytUeptexbdwvh6GtCYtNg
