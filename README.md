@@ -36,6 +36,8 @@ https://audioboom.com/channel/business-second-opinion
 
 http://regenerativeagriculturepodcast.com/
 
+https://carolsanfordinstitute.com/category/responsibleentrepreneurpodcast/
+
 ## Books
 http://www.regenterprise.com/regenerative-enterprise/ [payw]
 
