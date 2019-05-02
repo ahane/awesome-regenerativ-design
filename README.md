@@ -54,3 +54,6 @@ http://www.schumacherinstitute.org.uk/
 capitalinsitute.org
 
 Regenesis Group
+
+## Conferences
+https://theregenerativebusinesssummit.com/
