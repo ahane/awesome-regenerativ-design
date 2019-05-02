@@ -3,20 +3,28 @@ awesome-regenerativ-design
 
 ## Courses, selfpaced (free)
 *Regenerative Livelihoods by Design*
+
 https://www.clearabundance.org/available-programs-2/
+
 https://gaiauniversity.org/rld/
+
 https://www.edx.org/course/ulab-leading-change-in-times-of-disruption
+
+https://www.edx.org/course/ulab-leading-from-the-emerging-future-15-671-1x-1
 
 ## Courses, selfpaced (pay-what-you-can)
 *Charles Eisenstein's Courses*
+
 https://charleseisenstein.org/programs/#courses
-Unlearning: For Change Agents
+
 
 ## Formal Education
 Master of Science in Regnerative Studies (https://env.cpp.edu/rs/degree/master-science-regenerative-studies)
+
 Schumacher Institute
 
 ## Courses with Instruction (paid)
+
 https://www.context.org/about/plans/journey-deeper-into-the-planetary-era/
 
 https://gaiaeducation.org/elearning-programmes/designing-for-sustainability-intro/
@@ -26,7 +34,9 @@ https://nrhythm.co/online-course-foundations-of-regenerative-organizations-may-2
 https://www.clearabundance.org/available-programs-2/
 
 ## Lectures, Videos and Webinars
-Transforming the way humans inhabit the Eart Regenesis
+
+Transforming the way humans inhabit the Earth Regenesis
+
 https://vimeo.com/user3488680
 
 Carol Sanford on the Principles of the Regenerative Design Paradigm
