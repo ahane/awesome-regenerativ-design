@@ -33,7 +33,13 @@ http://ascentofhumanity.com/text/ [free/payw]
 Regenerative Design for Sustainable Development
 (https://books.google.de/books?id=qB3v3gYofSUC&printsec=frontcover&redir_esc=y#v=onepage&q&f=false) John Tillman Lyle
 
+The Regenerative Business
+https://carolsanford.com/
+
 Regenerative Development
+
+Regenerative Enterprise
+http://www.regenterprise.com/regenerative-enterprise/
 
 ## Blogs and Magazines
 https://medium.com/age-of-awareness/
