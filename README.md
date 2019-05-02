@@ -31,10 +31,6 @@ https://www.youtube.com/watch?v=zLXX6VqWYTg
 
 https://nrhythm.co/webinars/
 
-Tre Cates 'Building a Regenerative Culture'
-
-https://www.youtube.com/watch?time_continue=314&v=x1_SETEFR8w
-
 ## Podcasts and Shows
 Masters of Regeneration Radio with Tomas Rayes
 https://www.youtube.com/channel/UCQytUeptexbdwvh6GtCYtNg
@@ -70,8 +66,11 @@ https://smile.amazon.com/dp/B072RQQPB9/ref=smi_www_rco2_go_smi_3905707922?_encod
 Leading For Regeneration
 https://www.routledge.com/Leading-For-Regeneration-Going-Beyond-Sustainability-in-Business-Education/Hardman/p/book/9780415692458
 
-Holism and Evolution (Smuts) online https://archive.org/details/holismandevoluti032439mbp/page/n8
+Small is Beautiful by E.F. Schumacher
 
+Holistic Management Handbook
+
+Biomimicry Resource Handbook
 
 ## Papers and Publications
 
@@ -103,17 +102,10 @@ http://financialpermaculture.com
 
 capitalinsitute.org
 
-https://www.bfi.org/
-
 Regenesis Group
 
 https://www.regenerativeorganizations.com/
 
-https://www.savory.global/
-
 ## Conferences
 https://theregenerativebusinesssummit.com/
 https://bloompollination.com/
-
-## Other Summary Lists
-https://bloomnetwork.org/wiki/regenerative-culture-examples/
