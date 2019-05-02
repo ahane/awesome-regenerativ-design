@@ -31,6 +31,10 @@ https://www.youtube.com/watch?v=zLXX6VqWYTg
 
 https://nrhythm.co/webinars/
 
+Tre Cates 'Building a Regenerative Culture'
+
+https://www.youtube.com/watch?time_continue=314&v=x1_SETEFR8w
+
 ## Podcasts and Shows
 Masters of Regeneration Radio with Tomas Rayes
 https://www.youtube.com/channel/UCQytUeptexbdwvh6GtCYtNg
