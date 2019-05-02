@@ -5,6 +5,7 @@ awesome-regenerativ-design
 *Regenerative Livelihoods by Design*
 https://www.clearabundance.org/available-programs-2/
 https://gaiauniversity.org/rld/
+https://www.edx.org/course/ulab-leading-change-in-times-of-disruption
 
 ## Courses, selfpaced (pay-what-you-can)
 *Charles Eisenstein's Courses*
