@@ -42,6 +42,7 @@ http://www.ethansoloviev.com/
 
 ## Platforms and Networks
 https://regencommunities.net/
+https://apiosinstitute.org/
 
 ## Institutes, Schools and Univerisities
 
@@ -50,6 +51,10 @@ https://gaiaeducation.org
 https://www.schumachercollege.org.uk/
 
 http://www.schumacherinstitute.org.uk/
+
+http://www.regenterprise.com/?
+
+http://financialpermaculture.com
 
 capitalinsitute.org
 
