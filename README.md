@@ -44,6 +44,11 @@ https://www.youtube.com/watch?v=zLXX6VqWYTg
 
 https://nrhythm.co/webinars/
 
+
+Carol Sanford on Introduction to Seven First Principles
+https://theregenerativebusinesssummit.com/regeneration/
+
+
 Regenerative design, development and the LENSES framework
 https://www.youtube.com/watch?v=htb-kR98DbU
 
