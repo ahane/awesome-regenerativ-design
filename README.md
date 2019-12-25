@@ -147,3 +147,7 @@ https://regenesisgroup.com/resources/
 
 ## Projects
 http://regenerate.eu
+
+## Tech
+https://azimuthproject.org
+The Azimuth Project is an international collaboration to create a focal point for scientists and engineers interested in saving the planet. 
