@@ -117,6 +117,8 @@ https://bloomnetwork.org/
 
 ## Institutes, Schools and Univerisities
 
+https://www.h3uni.org/
+
 https://gaiaeducation.org
 
 https://www.schumachercollege.org.uk/
@@ -153,3 +155,7 @@ http://regenerate.eu
 ## Tech
 https://azimuthproject.org
 The Azimuth Project is an international collaboration to create a focal point for scientists and engineers interested in saving the planet. 
+
+
+
+
