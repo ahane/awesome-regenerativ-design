@@ -68,6 +68,8 @@ https://carolsanfordinstitute.com/category/responsibleentrepreneurpodcast/
 
 https://bloomnetwork.org/podcast/
 
+https://newrepublicoftheheart.org/podcast/
+
 ## Books
 http://www.regenterprise.com/regenerative-enterprise/ [payw]
 
