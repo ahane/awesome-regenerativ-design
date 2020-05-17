@@ -168,3 +168,6 @@ https://www.holisticdecisionmaking.org/
 
 ## Blogs
 https://makingpermaculturestronger.net/
+
+## Permaculture
+https://tobyhemenway.com/
