@@ -164,6 +164,7 @@ https://ecotrust.org/
 http://www.regenerativedesign.eu/
 https://www.sustridge.com/
 https://resilio.nz/
+https://www.holisticdecisionmaking.org/
 
 ## Blogs
 https://makingpermaculturestronger.net/
