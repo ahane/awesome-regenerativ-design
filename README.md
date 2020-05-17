@@ -163,3 +163,6 @@ https://ecotrust.org/
 
 http://www.regenerativedesign.eu/
 https://www.sustridge.com/
+
+## Blogs
+https://makingpermaculturestronger.net/
