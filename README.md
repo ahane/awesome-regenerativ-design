@@ -163,6 +163,7 @@ https://ecotrust.org/
 
 http://www.regenerativedesign.eu/
 https://www.sustridge.com/
+https://resilio.nz/
 
 ## Blogs
 https://makingpermaculturestronger.net/
