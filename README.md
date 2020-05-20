@@ -171,3 +171,7 @@ https://makingpermaculturestronger.net/
 
 ## Permaculture
 https://tobyhemenway.com/
+
+## Local
+
+https://www.strongtowns.org/
