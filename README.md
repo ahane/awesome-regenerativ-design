@@ -110,6 +110,8 @@ https://medium.com/age-of-awareness/
 
 http://www.ethansoloviev.com/
 
+https://www.kosmosjournal.org/
+
 ## Platforms and Networks
 https://regencommunities.net/
 
