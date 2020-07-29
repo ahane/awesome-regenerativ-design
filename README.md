@@ -179,3 +179,7 @@ https://tobyhemenway.com/
 ## Local
 
 https://www.strongtowns.org/
+
+## Ecovillage
+
+http://local-earth.org/
