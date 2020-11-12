@@ -12,6 +12,8 @@ https://www.edx.org/course/ulab-leading-change-in-times-of-disruption
 
 https://www.edx.org/course/ulab-leading-from-the-emerging-future-15-671-1x-1
 
+https://education.resilience.org/
+
 ## Courses, selfpaced (pay-what-you-can)
 *Charles Eisenstein's Courses*
 
