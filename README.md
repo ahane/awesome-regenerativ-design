@@ -14,6 +14,8 @@ https://www.edx.org/course/ulab-leading-from-the-emerging-future-15-671-1x-1
 
 https://education.resilience.org/
 
+https://systemicdesignlabs.ethz.ch/mooc-page/
+
 ## Courses, selfpaced (pay-what-you-can)
 *Charles Eisenstein's Courses*
 
@@ -24,6 +26,8 @@ https://charleseisenstein.org/programs/#courses
 Master of Science in Regnerative Studies (https://env.cpp.edu/rs/degree/master-science-regenerative-studies)
 
 Schumacher Institute
+
+https://systemicdesignlabs.ethz.ch/courses-and-programs/
 
 ## Courses with Instruction (paid)
 
