@@ -158,6 +158,9 @@ https://bloompollination.com/
 ## Other Summaries
 https://regenesisgroup.com/resources/
 
+## Consulting, Entrepreneurship
+https://flourishingbusiness.org/
+
 
 ## Projects
 http://regenerate.eu
